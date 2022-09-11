@@ -1,1 +1,1 @@
-# rsschool-cv
+https://udodovrs.github.io/rsschool-cv/
